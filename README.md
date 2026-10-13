@@ -1,1 +1,1 @@
-# yashicherukuri.github.io
+# FujiWebsite
